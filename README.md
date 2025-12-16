@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Bondipriyanka 
+- 👋 Hi, I’m @priyanka_B 
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning masters in computer application
 - 📫 connect me throught priyamca987@gmail.com
